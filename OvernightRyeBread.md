@@ -6,7 +6,7 @@ version with no starter.
 - 1 Tblsp yeast
 - 1 Tblsp honey
 - 1 c rye flour
-- 2 1/2 c bread flour
+- 3 c bread flour
 - 2 tsp salt
 
 
